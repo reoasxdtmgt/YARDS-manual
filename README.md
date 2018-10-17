@@ -1,2 +1,0 @@
-"# YARDS-manual" 
-"# YARDS-manual" 
